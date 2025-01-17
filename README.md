@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @felixrobin256 here known for JoeWrites
+- 👋 Hi, my username here is @felixrobin256 but I'm JoeWrites
 - 👀 I’m interested in Web3 Projects
-- 🌱 I’m an experienced AI-web3 Defi Content Writer
+- 🌱 I’m an experienced web3 project catalyst
 - 💞️ I’m working to impact and contribute to 1000 early web3 projects with my knowledge and expertise 
-- 📫 How to reach me through X @TheJoeWrites
+- 📫 How to reach me through X @ResilentJoe
 - 😄 Pronouns: him/ master
 - ⚡ Fun fact: Easily communication and Web3 Project Catalyst 
 
